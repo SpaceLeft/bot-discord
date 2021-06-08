@@ -1,6 +1,6 @@
-- # Server Support [Click](https://discord.gg/am4JeN6M)
+- # Server Support [Click](https://discord.gg/zMeHtCwXRs)
 _
 
-- # BotList United [Click](https:/unitedbots.fun/)
+- # BotList United [Click](https://discord.gg/zMeHtCwXRs)
 _
 > # Enjoy
