@@ -1,6 +1,5 @@
-- # Server Support [Click](https://discord.gg/zMeHtCwXRs)
-_
+## Support is Ended
 
-- # BotList United [Click](https://discord.gg/zMeHtCwXRs)
-_
-> # Enjoy
+# [UnitedBots](https://unitedbots.fun/)
+
+# [Bot List](https://discord.gg/unitedbots)
